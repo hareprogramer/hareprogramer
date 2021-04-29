@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @hareprogramer
+- 👀 I’m interested in game development, program and computer scient
+- 🌱 I’m currently learning programing
+- 💞️ I’m looking to collaborate on nothing for now
+- 📫 How to reach me  harunfetic20102@gmail.com
